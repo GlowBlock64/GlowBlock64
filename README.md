@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GlowBlock64
 - 👀 I’m interested in coding and it totally makes sense since I have GitHub account
-- 🌱 I’m currently learning physics because I have an exam tomorrow
+- 🌱 I’m currently chilling
 - 💞️ I’m looking to collaborate on stuff
 - 📫 How to reach me: don't
 
